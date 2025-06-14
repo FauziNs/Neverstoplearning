@@ -1,1 +1,1 @@
-Learn more
+New project soon
